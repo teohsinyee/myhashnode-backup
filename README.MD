@@ -1,1 +1,1 @@
-![traffic analytics](analytics.png)
+![traffic analytics](ANALYTICS.jpg)
