@@ -6,7 +6,9 @@ In the world of business, Operations Management is an essential aspect that busi
 
 As part of my exam revision, I've been pondering some important questions.
 
-#### E.g. how does inventory affect a company's sales?
+#### Questions brainstorming
+
+E.g. how does inventory affect a company's sales?
 
 I can personally relate to this scenario as I've had experiences where I went to a supermarket and couldn't find what I needed, leading me to shop elsewhere. This raises the question of <mark>how supermarkets determine the right amount of inventory to keep on hand</mark>.
 
@@ -70,11 +72,13 @@ In order to make a profit, the distributor needs to know how much to buy from th
 
 ---
 
-I recently sat for an exam on 07 Feb 2023, from 2.15pm to 4.15pm at DUP A. The exam consisted of both essay questions and multiple choice questions.
+#### Exam questions
+
+I recently sat for an Operations Management exam on 07 Feb 2023, from 2.15pm to 4.15pm at DUP A. The exam consisted of both essay questions and multiple choice questions.
 
 For the essay, I was asked to discuss five trends affecting Supply Chain Management and Design, and to perform an ABC analysis. Additionally, I was required to identify activities that form the critical path and calculate the duration of the critical path using a precedence graph.
 
-I am happy to say that I felt confident in my answers for these essay questions. I have a personal interest in Supply Chain Management and I have been actively following documentaries on the topic. This helped me recall the concepts and I was able to mention specific companies, such as Walmart, Amazon, Apple Inc., and Netflix, to support my points. 🥳
+I am happy to say that I felt confident in my answers for these essay questions. I have a personal interest in Supply Chain Management and I have been actively following documentaries on the topic. This **helped me recall the concepts** and I was able to mention specific companies, such as Walmart, Amazon, Apple Inc., and Netflix, to support my points. 🥳
 
 In my free time, I enjoy watching YouTube channels such as CNBC, Wall Street Journal, DW Documentary, and Insider Business to build my business acumen. Although I initially started watching these videos for entertainment, I now find that they have helped me retain information and learn in a fun and engaging way. 😀
 
@@ -88,3 +92,7 @@ These are my favorite YT channels that help me to build my business acumen:
 [Wall Street Journal - YouTube](https://www.youtube.com/@wsj)  
 [DW Documentary - YouTube](https://www.youtube.com/@DWDocumentary)  
 [Insider Business - YouTube](https://www.youtube.com/@InsiderBusiness)
+
+Following these channels helped me to keep up to date on global economy. Esp. the inflation waves.
+
+---
