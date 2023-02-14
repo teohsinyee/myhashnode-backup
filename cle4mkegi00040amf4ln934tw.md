@@ -114,6 +114,12 @@ In addition, I didn't print out any handouts but would draw on paper if I needed
 
 A professor once said to me, "Learning is fun. Fun is learning." I couldn't agree more. I learned that everyone has a different way of doing revision, and it's important to <mark>keep experimenting to find out what works best for you</mark>.
 
-If you found this article helpful, please consider supporting me by clicking the sponsor button or sharing it with others. It takes time to produce quality content, and your support will help me create better content in the future. (I need to some 💰to support my final year project 😂)
+If you found this article helpful, please consider supporting me by clicking the sponsor button or scanning the QR code below🤪 or sharing it with others.
+
+It takes time to produce quality content, and your support will help me create better content in the future. (I need to some 💰to support my final year project 😂)
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676404183090/14d8cb29-b79e-4770-82cb-aed288faf33a.jpeg align="center")
 
 THANK YOU MY READERS !!! ALL THE BEST TO YOUR EXAM 🥰
+
+Want to know more about me 👉 [Teoh Sin Yee | LinkedIn](https://www.linkedin.com/in/teohsinyee/)
