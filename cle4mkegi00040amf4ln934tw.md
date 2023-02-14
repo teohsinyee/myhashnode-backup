@@ -122,4 +122,4 @@ It takes time to produce quality content, and your support will help me create b
 
 THANK YOU MY READERS !!! ALL THE BEST TO YOUR EXAM 🥰
 
-Want to know more about me 👉 [Teoh Sin Yee | LinkedIn](https://www.linkedin.com/in/teohsinyee/)
+Want to know more about me? 👉 [Teoh Sin Yee | LinkedIn](https://www.linkedin.com/in/teohsinyee/)
