@@ -1,4 +1,4 @@
-# Revision Techniques That Are Proven to Work! (Computer Science)
+# Revision Techniques That Are Proven to Work!
 
 During my fourth year at university, I finally discovered the study techniques that work best for me. 🥳🥳
 
@@ -72,6 +72,10 @@ I used this technique for two courses: AKP402 Operations Management, which was a
 4\] Sometimes it could be a bit funny. Like chicken talks to duck. 👇👇 😂😂 All you need to do is to paste your question there, rather than ask Chatbot gives your the answers for questions 'above'. **It is confused by 'above'** and started to bully us.
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676403828726/441935b2-2638-417d-9513-aa4fb9e479e6.png align="center")
+
+5\] We could request it to rate the answers and the mark distributions. Not to forget, ask for the full mark answer. 💯
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676404789674/a9f793cd-0364-4cd3-9f60-88e41f306314.png align="center")
 
 ### Limitation of ChatGPT
 
