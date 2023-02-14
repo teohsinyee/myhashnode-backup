@@ -57,16 +57,16 @@ I used this technique for two courses: AKP402 Operations Management, which was a
 
 ### Use ChatGPT to generate possible exam questions
 
-1. Feed in your course outlines & lecture note outlines to ChatGPT
+1] Feed in your course outlines & lecture note outlines to ChatGPT
     
     ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676397252800/0b46f3dd-80f6-4ee9-a801-401fd44994bb.png align="center")
     
-2. This is the prompt that I used: `Create a few case study questions based on the syllabus. it's my final year exam. 50 marks per question. each question will have several sub questions from different chapter.`
+2] This is the prompt that I used: `Create a few case study questions based on the syllabus. it's my final year exam. 50 marks per question. each question will have several sub questions from different chapter.`
     
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676396713938/ee33b20e-d33d-495c-95ee-07ce0c533133.png align="center")
 
-1. I would answer the questions and then ChatGPT would critique my answers and provide feedback. This helped me fill in the knowledge gaps and **realize my blind spots**. ✅
+3] I would answer the questions and then ChatGPT would critique my answers and provide feedback. This helped me fill in the knowledge gaps and **realize my blind spots**. ✅
     
     ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676396765550/c52affa4-995d-4ce9-b801-8db7970caa32.png align="center")
     
