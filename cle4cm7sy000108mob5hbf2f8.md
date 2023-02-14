@@ -5,7 +5,7 @@ Round 2: Fill up the gap by screening through the lecture notes
 
 Essay Question 1 (100 marks):
 
-1/. Explain the basic structure and components of a wheeled robot (20 marks).
+1) Explain the basic structure and components of a wheeled robot (20 marks).
     
       
     <mark>My answer:</mark>
@@ -31,7 +31,7 @@ Essay Question 1 (100 marks):
         
     * Power management system: To regulate the power supplied by the battery to the various components.
         
-2/. Describe the various types of sensors used in robots, including their function and applications (30 marks).  
+2) Describe the various types of sensors used in robots, including their function and applications (30 marks).  
       
     <mark>My answer:</mark>
     
@@ -54,7 +54,7 @@ Essay Question 1 (100 marks):
         
     * Cameras: Used to capture visual data, often used for object recognition and navigation.
         
-3/. Discuss the challenges and techniques for robot navigation, including dead reckoning and SLAM (30 marks).  
+3) Discuss the challenges and techniques for robot navigation, including dead reckoning and SLAM (30 marks).  
       
     <mark>My answer:</mark>
     
@@ -74,7 +74,7 @@ Essay Question 1 (100 marks):
     
     Two common techniques for robot navigation are dead reckoning and SLAM (Simultaneous Localization and Mapping). Dead reckoning is a method of navigation that uses the robot's movements to estimate its position and orientation. SLAM, on the other hand, involves creating a map of the environment as the robot moves through it, and using this map to localize the robot in real-time.
     
-4/. Outline the steps involved in the localization process, including the use of Monte Carlo localization (20 marks).  
+4) Outline the steps involved in the localization process, including the use of Monte Carlo localization (20 marks).  
       
     <mark>My answer:</mark>
     
