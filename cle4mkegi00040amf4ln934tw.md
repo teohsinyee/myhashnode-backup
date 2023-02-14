@@ -20,7 +20,7 @@ I even interviewed a few top students and tried their study techniques. 👇😂
 
 One day, I got bored while studying Supply Chain Management and decided to watch a few YouTube videos for fun. To my surprise, the video scenes stuck in my brain more than the lecture notes did, and I realized I am a visual learner. 😎😎
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676401362923/dd89049b-5a20-44de-a9c5-3faaa589d992.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676403727549/4c51ee5e-384e-4067-a4e3-58f1839ca138.png align="center")
 
 ### Here's how I knew that this study technique was working for me:
 
@@ -57,19 +57,21 @@ I used this technique for two courses: AKP402 Operations Management, which was a
 
 ### Use ChatGPT to generate possible exam questions
 
-1] Feed in your course outlines & lecture note outlines to ChatGPT
-    
-    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676397252800/0b46f3dd-80f6-4ee9-a801-401fd44994bb.png align="center")
-    
-2] This is the prompt that I used: `Create a few case study questions based on the syllabus. it's my final year exam. 50 marks per question. each question will have several sub questions from different chapter.`
-    
+1\] Feed in your course outlines & lecture note outlines to ChatGPT
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676397252800/0b46f3dd-80f6-4ee9-a801-401fd44994bb.png align="center")
+
+2\] This is the prompt that I used: `Create a few case study questions based on the syllabus. it's my final year exam. 50 marks per question. each question will have several sub questions from different chapter.`
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676396713938/ee33b20e-d33d-495c-95ee-07ce0c533133.png align="center")
 
-3] I would answer the questions and then ChatGPT would critique my answers and provide feedback. This helped me fill in the knowledge gaps and **realize my blind spots**. ✅
-    
-    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676396765550/c52affa4-995d-4ce9-b801-8db7970caa32.png align="center")
-    
+3\] I would answer the questions and then ChatGPT would critique my answers and provide feedback. This helped me fill in the knowledge gaps and **realize my blind spots**. ✅
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676396765550/c52affa4-995d-4ce9-b801-8db7970caa32.png align="center")
+
+4\] Sometimes it could be a bit funny. Like chicken talks to duck. 👇👇 😂😂 All you need to do is to paste your question there, rather than ask Chatbot gives your the answers for questions 'above'. **It is confused by 'above'** and started to bully us.
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1676403828726/441935b2-2638-417d-9513-aa4fb9e479e6.png align="center")
 
 ### Limitation of ChatGPT
 
