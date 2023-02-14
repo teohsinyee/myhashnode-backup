@@ -9,7 +9,7 @@ I've personally experienced **three types of regrets**, and each one has taught 
 \- regret of not doing things  
 \- regret of not doing the right things.
 
-In my early years of college, I was advised by a successful entrepreneur to focus solely on my career progression rather than contributing to others. Unfortunately, **I didn't take this advice** and instead spent too much time on helping others rather than myself. Looking back, I realized that I could have achieved more if I had prioritized my career goals.
+In my early years of college, I was advised by a successful entrepreneur to focus solely on my career progression rather than contributing to others. Unfortunately, **I didn't take this advice** and instead spent too much time on helping others rather than myself. Looking back, I realized that I could have achieved more if I had prioritized my career goals. ❌❌
 
 Similarly, when I joined university, a lecturer advised me to not be too active in clubs and activities. But, being young and eager, **I did the opposite** and ended up stretching myself too thin. As a result, I wasn't able to devote enough time to my studies, and my health suffered. ❌❌
 
