@@ -56,7 +56,7 @@ Academic: ⭐☆☆☆☆
 Relationship: ⭐⭐⭐⭐☆  
 Self-care: ⭐☆☆☆☆
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1677903323267/b625b651-239c-45dd-a9d3-7a48438868ea.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1677911933133/a29e1f55-3ecc-4f74-a686-f916426986d8.png align="center")
 
 This month has been a rollercoaster ride of emotions and challenges. I have been struggling with self-doubt about participating in the campus election, but in the end, I decided to go for it. To my surprise, **I won the election without any contestants**. 🥳
 
@@ -74,6 +74,61 @@ All of this has affected my academic progress, and I have not made much progress
 
 ---
 
-### Month 4 (January 2023)
+### Month 4 (01 - 10 January 2023)
 
-.... writing
+Academic: ⭐☆☆☆☆  
+Relationship: ⭐☆☆☆☆  
+Self-care: ⭐☆☆☆☆
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1677912172134/a138e7da-99e9-4e5e-89ea-63d954d5607d.png align="center")
+
+January was a tough month, with several significant events and challenges that tested my mental and physical health.
+
+**The first part of January was particularly difficult**, as I struggled to recover from a month-long bout of coughing. However, I found that taking honey was very effective in relieving my symptoms.
+
+Despite my recovery, I continued to struggle with overwhelming stress and an unhealthy lifestyle. I pushed away my friends and skipped lectures, missing most assignment deadlines and even my FYP first presentation. At one point, I considered postponing my studies altogether. 👎👎
+
+Feeling lost and overwhelmed, I went to my lecturer's office to request that my second assignment be marked as a failure. I explained my health condition and my belief that I couldn't complete the assignment on time.
+
+Here's how the conversation went:
+
+> Me: "Dr, could you please give me a zero mark for this assignment? I really couldn't make it."  
+> **Dr: "No... You're a good student. I can't give you a zero mark."**  
+> Me: "It's okay."  
+> Dr: "No... Now you just need to do the bare minimum. Don't worry about making it perfect. Just submit something."
+
+Dr's words hit me hard, and I couldn't hold back my tears. I thought about how I had overcome so many challenges to get to my final year of study. **I knew I had the strength to get through this too.** I decided to try my best to submit the assignments on time. 💪💪
+
+I started to push my friends away, not wanting to burden them with my negative energy. But they wouldn't let me go so easily. They listened, supported, and even let me sleep overnight in their room to prevent me from overthinking. 🙆‍♀️🙆‍♀️👂
+
+<mark>I realized who my true friends were in my lowest moments.</mark>
+
+They not only supported me emotionally but also helped me plan my studies and how to tackle each assignment. Some even shared their submitted assignments with me to give me an idea of what was expected.
+
+Though my academic progress suffered, I was grateful for the support of my friends and my lecturer, who showed me compassion and understanding during this tough period.
+
+### Month 4 (11 - 31 January 2023)
+
+Academic: ⭐⭐⭐⭐☆  
+Relationship: ⭐⭐⭐⭐☆  
+Self-care: ⭐⭐⭐⭐⭐
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1677912188860/2d5c72f5-40bc-4a30-abc4-279896d2e8db.png align="center")
+
+During the second half of January, I was able to turn things around and make significant progress in my academic, relationship, and self-care goals. 🙌💖
+
+I managed to get back on track with a concrete plan for catching up on my assignments and presentations. After falling behind due to illness and an unhealthy lifestyle, I realized I had to take control of my situation. I focused solely on my academics for a week, buying a new monitor to increase my productivity, and finished all my delayed assignments.
+
+This hard work paid off, and **I was able to submit everything on time, giving me hope for the future.** I even completed my FYP first presentation and was satisfied with my performance, having practiced it many times. 👏👏
+
+I also published my first Hashnode article on my personal blog, which was a significant achievement for me. I had previously published two articles on another team blog, but this one felt more personal and meaningful!
+
+During this difficult time, <mark>I realized the importance of taking care of myself so that I could take care of others</mark>. I started to prioritize self-care, reducing my late nights, exercising more, and not skipping meals. **I also gave back to the community** by hosting a session to guide NLP students on how to complete their assignments and published an article on [11 things to consider before accepting internship offer](https://teohsinyee.hashnode.dev/internship-offer-usmcs). 🥳
+
+I am grateful to my friends who supported me through this tough period, and my FYP supervisor, who was always there to help me. This experience has taught me many valuable lessons and **revised my life priorities**.
+
+---
+
+### Month 5 (February 2023)
+
+...writing
