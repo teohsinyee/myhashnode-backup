@@ -8,72 +8,72 @@ tags: education, myths, life-advice
 
 ---
 
-During my fourth year of studies, I had the pleasure of taking a course taught by a brilliant and unconventional professor. Instead of sticking to the textbook, the good doctor shared fascinating tidbits of information that weren't found in any of our assigned readings. Even months after completing the course, I found myself constantly applying these nuggets of knowledge to my daily life.
+During my fourth year of studies, I had the pleasure of taking a course taught by a brilliant and unconventional professor. Instead of sticking to the textbook, the good lecturer shared fascinating tidbits of information that weren't found in any of our assigned readings. Even months after completing the course, I found myself constantly applying these nuggets of knowledge to my daily life.
 
-So, I decided to compile some of the most interesting and useful insights I learned from that course and categorize them into sections that cover advice, interesting facts, myths, news, and new vocabulary.
+So, I decided to compile some of the most interesting and useful insights I learned from that course and categorize them into sections that cover **advice, interesting facts, myths, news, and new vocabulary**.
 
 ## Advice
 
 *Share practical tips and advice that are given by the lecturer.*
 
-1. **Stay at a company for at least 6 months to 1 year  
-    **When starting out in your career, it's important to gain experience and build your resume by staying at a company for a minimum of 6 months to 1 year. This can demonstrate to future employers that you are committed, reliable, and capable of adapting to new environments and challenges.
+1. **Stay at a company for at least 6 months to 1 year**  
+    When starting out in your career, it's important to gain experience and build your resume by staying at a company for a minimum of 6 months to 1 year. This can demonstrate to future employers that <mark>you are committed, reliable, and capable of adapting to new environments and challenges</mark>.
     
 2. **Focus on network and communication, not just technical skill**  
     In today's digital age, being technically skilled is no longer enough. Professionals must also possess good communication and networking skills in order to succeed in the workplace. This includes the ability to work collaboratively with others, listen actively, and articulate ideas and solutions effectively.
     
 3. **Adapt to new skills**  
-    With the rapid pace of technological change, it's important to be open to learning new skills, especially in emerging fields such as artificial intelligence, machine learning, and robotics. As new technologies emerge, those who are able to adapt and learn quickly will be better equipped to stay competitive in the job market.
+    With the rapid pace of technological change, it's important to <mark>be open to learning new skills</mark>, especially in emerging fields such as artificial intelligence, machine learning, and robotics. As new technologies emerge, those who are able to adapt and learn quickly will be better equipped to stay competitive in the job market.
     
 4. **Conflict resolution and negotiation skills are crucial**  
-    In any workplace, conflicts are bound to arise. The ability to navigate and resolve conflicts effectively is a highly valued skill, and can help you build strong relationships with colleagues and clients alike. Negotiation skills are also important for securing deals, resolving disputes, and advocating for your needs and interests.
+    In any workplace, conflicts are bound to arise. The ability to navigate and resolve conflicts effectively is a highly valued skill, and can help you <mark>build strong relationships with colleagues and clients alike</mark>. Negotiation skills are also important for securing deals, resolving disputes, and advocating for your needs and interests.
     
 5. **Read the newspaper**  
-    Staying informed about current events and global trends is essential for professionals in all fields. By reading the newspaper or following news outlets online, you can broaden your knowledge base and gain insights into the latest developments and challenges in your industry.
+    Staying informed about current events and global trends is essential for professionals in all fields. By reading the newspaper or following news outlets online, you can <mark>broaden your knowledge base</mark> and gain insights into the latest developments and challenges in your industry.
     
 6. **Develop a mission statement**  
-    A mission statement can help guide your career path by clarifying your values, goals, and vision for the future. By regularly revisiting and refining your mission statement, you can stay focused on what you want to achieve and make decisions that are aligned with your overall vision.
+    A mission statement can help guide your career path by clarifying your values, goals, and vision for the future. By regularly revisiting and refining your mission statement, you can <mark> stay focused on what you want to achieve</mark> and make decisions that are aligned with your overall vision.
     
 
 ## Interesting Myths
 
-*Debunk common myths related to the topic of the course, and provide factual information.*
+*Debunk common myths related to off-topic matters, and provide factual information.*
 
 1. **Japanese working ethic**
     
     * Myth: Always work & work?
         
-        While it is true that Japan has a strong work ethic and a culture of long work hours, it is important to note that there are also movements to address this issue, such as the "work-style reform" initiative launched by the Japanese government in 2016 to promote work-life balance.
+        While it is **true that Japan has a strong work ethic and a culture of long work hours**, it is important to note that there are also movements to address this issue, such as the "work-style reform" initiative launched by the Japanese government in 2016 to promote work-life balance.
         
-    * Myth: Commit suicide place is provided?  
-        While there have been reports of "suicide forests" in Japan, it is not accurate to say that suicide places are provided. The issue of suicide in Japan is complex and has multiple contributing factors, such as social pressure and mental health stigma.
+    * Myth: Commit suicide place provided?  
+        While there have been reports of "suicide forests" in Japan, it is **not accurate** to say that suicide places are provided. The issue of suicide in Japan is complex and has multiple contributing factors, such as social pressure and mental health stigma.
         
     * Myth: Due to the decrease in population, government provides free housing?  
-        While the Japanese government has implemented various policies to address the aging population issue, such as promoting immigration and encouraging childbirth, it is not accurate to say that free housing is provided in a particular village for aged people.  
+        While the Japanese government has implemented various policies to address the aging population issue, such as promoting immigration and encouraging childbirth, it is **not accurate** to say that free housing is provided in a particular village for aged people.  
         However, there are programs that offer financial support and subsidies for senior citizens to help them with housing and other living expenses.
         
     * Myth: Some Japanese hardly accept foreigners?  
-        While Japan has been criticized for its homogeneity and the challenges faced by foreigners in terms of language and cultural barriers, it is not accurate to say that the culture hardly accepts foreigners.  
+        While Japan has been criticized for its homogeneity and the challenges faced by foreigners in terms of language and cultural barriers, it is **not accurate** to say that the culture hardly accepts foreigners.  
         There are many foreigners who have lived and worked in Japan for extended periods of time and have found success and fulfillment in their experiences.
         
 2. Which country got the best doctor?
     
     * India is very good in x-ray, and medical field, got the best doctor?  
-        While India has made significant progress in the field of medical technology and healthcare, it is not accurate to say that it has the best doctors or is the best in every aspect of the medical field.  
+        While India has made significant progress in the field of medical technology and healthcare, it is **not accurate** to say that it has the best doctors or is the best in every aspect of the medical field.  
         It is important to recognize the strengths and limitations of different healthcare systems and to promote collaboration and sharing of knowledge and expertise.
         
 3. Why is so pleasant to work with Japanese?
     
     * Japanese is particular in planning?  
-        While it is true that the Japanese have a reputation for being meticulous and detail-oriented, it is important to recognize that not all Japanese individuals or companies operate in the same way. It is also important to be aware of cultural differences and to communicate effectively to avoid misunderstandings and conflicts.
+        While it is **true** that the **Japanese have a reputation for being meticulous and detail-oriented**, it is important to recognize that not all Japanese individuals or companies operate in the same way. It is also important to be aware of cultural differences and to communicate effectively to avoid misunderstandings and conflicts.
         
 4. Malaysia professor made RM 20k per month?
     
-    * While it is true that some professors in Malaysia may earn high salaries, it is important to note that this is not representative of all professors and that salaries can vary widely depending on factors such as experience, qualifications, and field of expertise.
+    * While it is true that some professors in Malaysia may earn high salaries, it is important to note that this is not representative of all professors and that **salaries can vary** widely depending on factors such as experience, qualifications, and field of expertise.
         
 5. Senior lecturers in Malaysia may receive RM 6k month after retirement?
     
-    * While it is true that some senior lecturers in Malaysia may receive retirement benefits, it is important to note that this is not the case for all lecturers and that there are many factors that contribute to the hiring practices of universities and other educational institutions.
+    * While it is true that some senior lecturers in Malaysia may receive retirement benefits, it is important to note that this is not the case for all lecturers and that **there are many factors** that contribute to the hiring practices of universities and other educational institutions.
         
 
 ## Interesting Facts
@@ -82,7 +82,7 @@ So, I decided to compile some of the most interesting and useful insights I lear
 
 1. There is a [Facebook page](https://www.facebook.com/umptrollz/) that criticizes UMP policies:
     
-    * Universiti Malaysia Pahang (UMP) is a public university located in Pahang, Malaysia. The Facebook page mentioned in the blog is a **critical commentary on UMP's policies and management**, and may not necessarily reflect the views of the university or its stakeholders.
+    * Universiti Malaysia Pahang (UMP) is a public university located in Pahang, Malaysia. The Facebook page mentioned **critical commentary on UMP's policies and management**, and may not necessarily reflect the views of the university or its stakeholders.
         
 2. In supply chain management, producing everything in-house can be much more expensive, which is why some products, like Apple's, are expensive.
     
@@ -161,6 +161,6 @@ So, I decided to compile some of the most interesting and useful insights I lear
 
 In conclusion, I hope you found this blog informative and useful in applying the concepts to your daily life. Remember, knowledge is power, and learning something new each day can help you become a better version of yourself.
 
-I would like to take this opportunity to express my sincere gratitude to Dr Shabir for sharing these valuable insights with us. It is rare to have such a dedicated and knowledgeable lecturer who goes above and beyond to impart knowledge and wisdom beyond textbooks.
+I would like to take this opportunity to express my sincere gratitude to Dr XX (Not mention full name to avoid any potential issues) for sharing these valuable insights with us. It is rare to have such a dedicated and knowledgeable lecturer who <mark> goes above and beyond to impart knowledge and wisdom beyond textbooks</mark>.
 
 Thank you, Dr, for inspiring us to become lifelong learners.
