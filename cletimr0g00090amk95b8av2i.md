@@ -173,13 +173,13 @@ As a result, I ended up spending most of my time in the FYP lab, where I was wor
 
 However, my hard work paid off, and I made significant progress on my FYP project. This experience taught me to be more self-disciplined and avoid procrastination, as it only creates more stress. 🥳🥳
 
-Towards the end of the month, the new semester started, and I was excited about the courses. I particularly loved the instructor, Dr. Gan, was very passionate about teaching, and we could feel her sincerity and efforts. I hope she continues teaching, as I believe she is a great asset to the university.
+Towards the end of the month, the new semester started, and I was excited about the courses. I particularly loved the instructor, Dr. Gan, was very passionate about teaching, and we could feel her sincerity and efforts. I hope she continues teaching, as I believe she is a great asset to the university. **🧑‍🏫🧑‍🏫**
 
 However, not everything was wonderful in March. At some point, I felt burnt out and found myself doing silly things like paying for pump 3 but using pump 4 when filling up petrol, and forgetting my wallet when I wanted to buy dinner. 😭😭😭😭
 
 I was angry at myself but soon realized that these were signs of burnout.😶‍🌫️😶‍🌫️ **These were clear signs that I needed to take a break and cut down on my workload.**
 
-I realized that an ample mind is the workshop of evil, so I took steps to manage my stress levels. Despite the challenges I faced, **I remained grateful for the progress I had made on my FYP project, and it kept me motivated to keep going.** I learned that even when everything feels like it's falling apart, there is always something to be thankful for. 💖😊💖😊
+I realized that an **idle mind is the workshop of evil**, so I took steps to manage my stress levels. Despite the challenges I faced, **I remained grateful for the progress I had made on my FYP project, and it kept me motivated to keep going.** I learned that even when everything feels like it's falling apart, there is always something to be thankful for. 💖😊💖😊
 
 <mark>In the end, I decided to adopt Dory's mantra from the movie 'Finding Dory' and just keep swimming.</mark>
 
