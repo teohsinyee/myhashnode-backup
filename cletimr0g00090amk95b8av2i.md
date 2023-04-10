@@ -161,4 +161,26 @@ Reflecting on this month, I am proud of the progress I have made academically an
 
 ### Month 6 (March 2023)
 
-Writing...
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1681147307226/007de2c2-75bb-479e-b24d-605fc676a715.png align="center")
+
+Academic: ⭐⭐⭐⭐☆  
+Relationship: ⭐⭐☆☆☆  
+Self-care: ⭐⭐☆☆☆
+
+It was Mid-Sem break, and I was looking forward to taking a break and relaxing. However, I didn't go back to my hometown and instead moved to a new hostel. Unfortunately, the ventilation in the new hostel was terrible, and I felt suffocated.
+
+As a result, I ended up spending most of my time in the FYP lab, where I was working on my FYP sprint. It was a busy month for me as I was working on my FYP sprint, and I had to stay up many nights to complete my work. I relied heavily on double-shot cappuccinos to keep me going, but it ended up costing me RM 30 every day. 😭😭
+
+However, my hard work paid off, and I made significant progress on my FYP project. This experience taught me to be more self-disciplined and avoid procrastination, as it only creates more stress. 🥳🥳
+
+Towards the end of the month, the new semester started, and I was excited about the courses. I particularly loved the instructor, Dr. Gan, was very passionate about teaching, and we could feel her sincerity and efforts. I hope she continues teaching, as I believe she is a great asset to the university.
+
+However, not everything was wonderful in March. At some point, I felt burnt out and found myself doing silly things like paying for pump 3 but using pump 4 when filling up petrol, and forgetting my wallet when I wanted to buy dinner. 😭😭😭😭
+
+I was angry at myself but soon realized that these were signs of burnout.😶‍🌫️😶‍🌫️ **These were clear signs that I needed to take a break and cut down on my workload.**
+
+I realized that an ample mind is the workshop of evil, so I took steps to manage my stress levels. Despite the challenges I faced, **I remained grateful for the progress I had made on my FYP project, and it kept me motivated to keep going.** I learned that even when everything feels like it's falling apart, there is always something to be thankful for. 💖😊💖😊
+
+<mark>In the end, I decided to adopt Dory's mantra from the movie 'Finding Dory' and just keep swimming.</mark>
+
+![](https://media.tenor.com/2e48UtnHv6kAAAAM/finding-dory-dory.gif align="center")
