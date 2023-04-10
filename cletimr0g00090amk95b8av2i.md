@@ -161,11 +161,11 @@ Reflecting on this month, I am proud of the progress I have made academically an
 
 ### Month 6 (March 2023)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1681147307226/007de2c2-75bb-479e-b24d-605fc676a715.png align="center")
-
 Academic: ⭐⭐⭐⭐☆  
 Relationship: ⭐⭐☆☆☆  
 Self-care: ⭐⭐☆☆☆
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1681147307226/007de2c2-75bb-479e-b24d-605fc676a715.png align="center")
 
 It was Mid-Sem break, and I was looking forward to taking a break and relaxing. However, I didn't go back to my hometown and instead moved to a new hostel. Unfortunately, the ventilation in the new hostel was terrible, and I felt suffocated.
 
@@ -184,3 +184,9 @@ I realized that an ample mind is the workshop of evil, so I took steps to manage
 <mark>In the end, I decided to adopt Dory's mantra from the movie 'Finding Dory' and just keep swimming.</mark>
 
 ![](https://media.tenor.com/2e48UtnHv6kAAAAM/finding-dory-dory.gif align="center")
+
+---
+
+### Month 7 (April 2023)
+
+writing....
