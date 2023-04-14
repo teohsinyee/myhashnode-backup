@@ -50,7 +50,7 @@ tags: sermon, christianity
     
 * When we are faced with weaknesses and struggles, we may be tempted to respond in negative ways, such as feeling useless or being self-destructive. However, <mark>God calls us to deal with our weaknesses in a productive and healthy way</mark>. In 1 Peter 5:6-7, we are encouraged to humble ourselves before God and cast our anxieties on Him, knowing that He cares for us. Similarly, in Philippians 4:13, Paul writes that he can do all things through Christ who strengthens him.
     
-* One of the ways that God uses our weaknesses for His purposes is by <mark> allowing us to help others who are going through similar struggles</mark>. In 2 Corinthians 1:3-4, Paul writes that God comforts us in our troubles so that we can comfort others with the comfort we have received from Him. Similarly, in Galatians 6:2, we are called to bear one another's burdens and so fulfill the law of Christ.
+* One of the ways that God uses our weaknesses for His purposes is by <mark>allowing us to help others who are going through similar struggles</mark>. In 2 Corinthians 1:3-4, Paul writes that God comforts us in our troubles so that we can comfort others with the comfort we have received from Him. Similarly, in Galatians 6:2, we are called to bear one another's burdens and so fulfill the law of Christ.
     
 * Finally, transforming weakness into strength requires us to embrace vulnerability. When we are willing to <mark>be honest about our weaknesses and struggles, we open ourselves up to God's grace and the support of others</mark>. In Hebrews 4:15-16, we are reminded that Jesus understands our weaknesses and invites us to approach His throne of grace with confidence, so that we may receive mercy and find grace to help us in our time of need. Similarly, in James 5:16, we are encouraged to confess our sins to one another and pray for each other, so that we may be healed.
     
@@ -94,3 +94,15 @@ tags: sermon, christianity
 * It is also important to recognize that our ultimate fate depends on the grace of God. <mark>We cannot earn our way into heaven through our own efforts or good deeds, but must rely on the mercy and love of God</mark>. This should instill a healthy fear in us, but also a deep sense of gratitude and humility.
     
 * Finally, as Christians <mark>we should strive to care for others in the same way that Jesus cares for us</mark>. We should be motivated by a love for God and a desire to share His love and truth with others. This is our greatest responsibility and privilege as followers of Christ.
+    
+
+Last updated: 14-Apr-2023
+
+---
+
+*Special notes:*  
+I want to express my deep gratitude to my friend who introduced me to Christianity and encouraged me to learn more about God. This journey has been eye-opening and transformative, and I am excited to continue growing in my faith.
+
+As I strive to live a life that honors God, I know that I will face many questions and challenges along the way. But I am committed to seeking answers and guidance through prayer, Scripture, and the wisdom of fellow believers. I look forward to what lies ahead, knowing that God is faithful and that His plans for me are good. 💓
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1681480846444/17571a4b-6ba5-4027-9db1-7b5c508eaf73.png align="center")
