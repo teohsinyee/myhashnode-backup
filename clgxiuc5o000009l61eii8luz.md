@@ -50,9 +50,9 @@ In the end, my friend learned that the **heartbreak of a friendship breakup was 
 
 I want to thank you for being there for me during both good and difficult times. Your support and help have been invaluable, and I am grateful for everything you have done for me. 💕
 
-At the same time, I want to apologize for any mistakes I may have made that caused you hurt. Looking back, I understand how my actions or words may have impacted you, and I am sorry for any pain I caused. I have learned from my mistakes, and I hope you can forgive me.
+At the same time, I want to apologize for any mistakes I may have made that caused you hurt. Looking back, I understand how my actions or words may have impacted you, and I am sorry for any pain I caused.
 
-Though our friendship may have ended, I still wish you nothing but the best in life. You deserve to be happy and fulfilled, and I hope you find the joy and success you seek. ありがとう
+Though our best-friendship may have ended, I still wish you nothing but the best in life. You deserve to be happy and fulfilled, and I hope you find the joy and success you seek. ありがとう
 
 ![](https://64.media.tumblr.com/ab06ff4228f860c9934f327b61a2c6bb/tumblr_ocsaeii4uA1vnqmpbo1_500.gif align="center")
 
