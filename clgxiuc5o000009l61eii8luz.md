@@ -42,7 +42,7 @@ After several weeks of emotional turmoil, my friend finally realized that she ha
 
 **She reminded herself that even though her ex-best friend was no longer in her life, the memories they shared together would always be a part of her**. 👩‍❤️‍👩👩‍❤️‍👩She forgave herself for any mistakes she had made and decided to move forward with her life.
 
-### Conclusion:
+### Conclusion
 
 In the end, my friend learned that the **heartbreak of a friendship breakup was not caused by people being brutal or heartless**. Sometimes people just grow apart or cannot accept each other in their lives. <mark>Those who truly value us will stay, and we should appreciate them while they are in our lives.</mark>
 
