@@ -28,7 +28,7 @@ Every time she saw her friend, her body trembled, and she was triggered all over
 
 ### Stage 3: Bargaining ☹️
 
-In her attempt to cope with the situation, my friend tried to make sense of what had happened. <mark>She counted her mistakes and tried to take full responsibility for the friendship's end.</mark> **She constantly reminded herself that she must not have any anger or hatred toward her ex-friend because they once shared good memories together**. She tried to bargain with herself, thinking that maybe if she apologized again, her friend would come back.
+In her attempt to cope with the situation, my friend tried to make sense of what had happened. <mark>She counted her mistakes and tried to take full responsibility for the friendship's end.</mark> **She constantly reminded herself that she must not have any anger or hatred toward her ex-best friend because they once shared good memories together**. She tried to bargain with herself, thinking that maybe if she apologized again, her friend would come back.
 
 ### Stage 4: Anxiety 😰
 
@@ -38,9 +38,9 @@ Seeking help, she consulted a doctor and began taking medication to help allevia
 
 ### Stage 5: Acceptance 🙂
 
-After several weeks of emotional turmoil, my friend finally realized that she had to let go. She accepted that her friendship was over and that her ex-friend had moved on. She started to focus on taking care of herself and engaging in activities that made her happy. <mark>She began to understand that people come and go in our lives, and that's just a part of life.</mark>
+After several weeks of emotional turmoil, my friend finally realized that she had to let go. She accepted that her friendship was over and that her ex-best friend had moved on. She started to focus on taking care of herself and engaging in activities that made her happy. <mark>She began to understand that people come and go in our lives, and that's just a part of life.</mark>
 
-**She reminded herself that even though her ex-friend was no longer in her life, the memories they shared together would always be a part of her**. 👩‍❤️‍👩👩‍❤️‍👩She forgave herself for any mistakes she had made and decided to move forward with her life.
+**She reminded herself that even though her ex-best friend was no longer in her life, the memories they shared together would always be a part of her**. 👩‍❤️‍👩👩‍❤️‍👩She forgave herself for any mistakes she had made and decided to move forward with her life.
 
 ### Conclusion:
 
