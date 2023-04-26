@@ -8,17 +8,23 @@ tags: friendship
 
 ---
 
-Friendship is one of the most precious and meaningful relationships that we can have in our lives. In fact, it can be just as important and impactful as a romantic relationship. **Our friends are the ones we turn to when we need a shoulder to cry on or a partner in crime for a night out.** So when a friendship comes to an end, it can be just as heartbreaking and difficult to cope with as a romantic breakup.
+Friendship is one of the most precious and meaningful relationships that we can have in our lives. In fact, it can be just as important and impactful as a romantic relationship. **Our friends are the ones we turn to when we need a shoulder to cry on or a partner in crime for a night out.** 👻👻 So when a friendship comes to an end, it can be just as heartbreaking and difficult to cope with as a romantic breakup.
 
-My close friend recently experienced a heartbreaking friendship breakup, and with her consent, **I documented her feelings and the stages of her journey to rebound from this difficult experience**. I accompanied her throughout the process and witnessed how she navigated through the different stages of grief. I hope that her story can provide some insight and guidance for others going through a similar experience. 💖
+My close friend recently experienced a heartbreaking friendship breakup, and with her consent, **I documented her feelings and the stages of her journey to rebound from this difficult experience**. I accompanied her throughout the process and witnessed how she navigated through the different stages of grief.
+
+I hope that her story can provide some insight and guidance for others going through a similar experience. 💖
 
 ### Stage 1: Denial 😕
 
-At first, she was in denial and couldn't believe that her friend had left her. She sensed that the way they interacted had changed, but she didn't understand why. She tried to find out what had happened and apologized, hoping to salvage their friendship. However, her friend had expressed that they no longer wanted to stay in the friendship, and despite my friend's repeated apologies, her friend persisted in their decision to end the relationship. My friend was sad and triggered by the rejection, and <mark>she struggled to understand why her friend would choose to let their relationship fade away</mark>.
+At first, she was in denial and couldn't believe that her friend had left her. She sensed that the way they interacted had changed, but she didn't understand why. She tried to find out what had happened and apologized, hoping to salvage their friendship.
+
+However, her friend had expressed that they no longer wanted to stay in the friendship, and despite my friend's repeated apologies, her friend persisted in their decision to end the relationship. My friend was sad and triggered by the rejection, and <mark>she struggled to understand why her friend would choose to let their relationship fade away</mark>.
 
 ### Stage 2: Anger💢
 
-As time went by, my friend began to feel angry and disappointed. She was in a victim mindset and questioned <mark>how her friend could give up their relationship so easily</mark>. When she saw photos of her friend with others, she felt envious and hurt. Every time she saw her friend, her body trembled, and she was triggered all over again. **She was angry at herself for not realizing the flaws in their relationship sooner**, and she regretted not taking more responsibility for her mistakes. She was even afraid to make new friends because of her perceived flaws.
+As time went by, my friend began to feel angry and disappointed. She was in a victim mindset and questioned <mark>how her friend could give up their relationship so easily</mark>. When she saw photos of her friend with others, she felt envious and hurt.
+
+Every time she saw her friend, her body trembled, and she was triggered all over again. **She was angry at herself for not realizing the flaws in their relationship sooner**, and she regretted not taking more responsibility for her mistakes. She was even afraid to make new friends because of her perceived flaws.
 
 ### Stage 3: Bargaining ☹️
 
@@ -26,11 +32,15 @@ In her attempt to cope with the situation, my friend tried to make sense of what
 
 ### Stage 4: Anxiety 😰
 
-Despite her best efforts, my friend could not shake off the anxiety that engulfed her. She kept reliving the memories of their friendship and wondering what could have been done differently. **She struggled to face the reality that her friend was gone, and she felt alone and isolated.** Seeking help, she consulted a doctor and began taking medication to help alleviate her anxiety. 💊 However, with the help of her doctor and loved ones, she continued to seek help and support to move through this difficult stage.
+Despite her best efforts, my friend could not shake off the anxiety that engulfed her. She kept reliving the memories of their friendship and wondering what could have been done differently. **She struggled to face the reality that her friend was gone, and she felt alone and isolated.**
+
+Seeking help, she consulted a doctor and began taking medication to help alleviate her anxiety. 💊 However, with the help of her doctor and loved ones, she continued to seek help and support to move through this difficult stage.
 
 ### Stage 5: Acceptance 🙂
 
-After several weeks of emotional turmoil, my friend finally realized that she had to let go. She accepted that her friendship was over and that her ex-friend had moved on. She started to focus on taking care of herself and engaging in activities that made her happy. <mark>She began to understand that people come and go in our lives, and that's just a part of life.</mark> **She reminded herself that even though her ex-friend was no longer in her life, the memories they shared together would always be a part of her**. 👩‍❤️‍👩👩‍❤️‍👩She forgave herself for any mistakes she had made and decided to move forward with her life.
+After several weeks of emotional turmoil, my friend finally realized that she had to let go. She accepted that her friendship was over and that her ex-friend had moved on. She started to focus on taking care of herself and engaging in activities that made her happy. <mark>She began to understand that people come and go in our lives, and that's just a part of life.</mark>
+
+**She reminded herself that even though her ex-friend was no longer in her life, the memories they shared together would always be a part of her**. 👩‍❤️‍👩👩‍❤️‍👩She forgave herself for any mistakes she had made and decided to move forward with her life.
 
 ### Conclusion:
 
