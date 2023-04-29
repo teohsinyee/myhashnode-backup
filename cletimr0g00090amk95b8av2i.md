@@ -218,3 +218,11 @@ In addition to the personal growth I experienced, I also managed to **complete m
 > **I have come to realize that we are free, and happiness is a choice.**
 
 We have the power to choose how we live our lives, and I'm grateful for the freedom to choose my path. This month has taught me that setbacks and challenges can be blessings in disguise. Thank God. ✝️🥰🥰
+
+![](https://i.pinimg.com/originals/0d/ba/08/0dba0828a327246100738fc7ccd7d054.gif align="center")
+
+---
+
+### Month 8 (May 2023)
+
+Writing...
