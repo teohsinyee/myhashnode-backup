@@ -189,4 +189,32 @@ I realized that an **idle mind is the workshop of evil**, so I took steps to man
 
 ### Month 7 (April 2023)
 
-writing....
+Academic: ⭐⭐⭐⭐☆  
+Relationship: ⭐⭐☆☆☆  
+Self-care: ⭐⭐⭐⭐⭐
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1682746882456/4dd0b079-1662-4010-a2f8-d052852c65dc.png align="center")
+
+I'd name this month as **Month of Reborn**. I went through a period of heightened anxiety and sadness, but surprisingly found moments of joy and growth through the setbacks I faced. 😭😖😊😊
+
+The first half of the month wasn't great, as I faced a few setbacks while trying to prepare for the progress demo presentation of my FYP. Unfortunately, it was a last-minute preparation, and I had to consume a lot of caffeine to stay awake. ☕☕As a result, I wasn't able to perform well during the demo. 👎👎**I learned a valuable lesson about time management and prioritization.**
+
+Despite the setbacks, I made time for iftar with my friends and foster our bond during Ramadhan. However, things took a turn for the worse as I encountered more setbacks, and it was painful. **Initially, I thought I couldn't move on from them.** But thankfully, <mark>my friends helped me through this phase</mark>, and I realized the value of their support. 💟💞💞
+
+In addition, I **deactivated my social media accounts** to gain mental peace. I used to spend a few hours on social media every day, but quitting it was the **best decision I ever made.** Social media used to be like poison to me☠️☠️, and I realized that most things we see there may not be real, and it could trigger us. So, I decided to take a break to gain some clarity.
+
+It took me more than two weeks to move on from the setback, but it was worth it. I realized that throughout my university life, I had been busy with things that I disliked. **I never paused and asked myself what I wanted until the setbacks hit me.** ⏯️
+
+I decided to let go of things that I used to care about a lot and live a life that I'm passionate about. The peace that followed was unprecedented, and I now look forward to each day with a renewed sense of purpose. 🏃‍♀️🏃‍♀️
+
+> In fact, many people had advised me to take a pause from my busy lifestyle, but **I never listened to them**. However, the setbacks I faced made me realize that taking a break can be a blessing in disguise. It allowed me to focus on my priorities, and I'm grateful for the support I received from my friends during this time. 💞
+
+My lifestyle is now much more disciplined, and I make sure to finish daily tasks and plan my next day's tasks ahead. So, when I wake up, I already know what I need to do. **Since I no longer use social media, I have more time to do the things that I love**, such as reading bible✝️, traveling to new places✈️, playing guitar🎸, and exercising 🚵.
+
+In addition to the personal growth I experienced, I also managed to **complete most my assignments two weeks ahead of schedule.** 🥳🥳This allowed me to focus on my FYP and gave me some breathing room to prepare for the upcoming test season.
+
+**Finishing my assignments earlier than usual was a massive accomplishment for me, and it made me feel more productive and in control of my studies**. I no longer felt overwhelmed by looming deadlines and was <mark>able to channel my energy into the things that mattered most to me</mark>. 💪💪
+
+> **I have come to realize that we are free, and happiness is a choice.**
+
+We have the power to choose how we live our lives, and I'm grateful for the freedom to choose my path. This month has taught me that setbacks and challenges can be blessings in disguise. Thank God. ✝️🥰🥰
