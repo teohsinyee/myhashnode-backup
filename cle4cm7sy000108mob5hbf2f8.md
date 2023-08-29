@@ -1,4 +1,12 @@
-# Robotics Practice (Case study Part 2)
+---
+title: "Robotics Practice (Case study Part 2)"
+datePublished: Tue Feb 14 2023 14:37:35 GMT+0000 (Coordinated Universal Time)
+cuid: cle4cm7sy000108mob5hbf2f8
+slug: robotics-practice-case-study-part-2
+cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/2EJCSULRwC8/upload/8350ddff56788044a8c3b9ee32cae245.jpeg
+tags: robotics
+
+---
 
 Round 1: Quick Recall (Do not look at the lecture notes)  
 Round 2: Fill up the gap by screening through the lecture notes
