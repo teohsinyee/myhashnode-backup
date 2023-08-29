@@ -1,4 +1,12 @@
-# Computer Vision Practice (Case studies)
+---
+title: "Computer Vision Practice (Case studies)"
+datePublished: Thu Feb 09 2023 18:23:57 GMT+0000 (Coordinated Universal Time)
+cuid: cldxfi2i0000a09jq1spj3kl7
+slug: computer-vision-practice-case-studies
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1675931300347/22ee4d4a-e1ed-44bd-a6f6-9e9c482ea047.jpeg
+tags: image-processing, computer-vision, case-study
+
+---
 
 Have you ever wondered how a child can effortlessly recognize objects just by seeing them? This ability captivated the imagination of Li Fei-fei, a name you definitely should know in the field of computer vision. She was determined to train a system to do the same, and so began the **ImageNet** project in 2007.
 
