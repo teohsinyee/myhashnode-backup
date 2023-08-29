@@ -1,4 +1,12 @@
-# Computer Vision: Compare region-based segmentation methods
+---
+title: "Computer Vision: Compare region-based segmentation methods"
+datePublished: Sat Feb 11 2023 12:50:04 GMT+0000 (Coordinated Universal Time)
+cuid: cldzygena00000aku7l1dfr84
+slug: computer-vision-compare-region-based-segmentation-methods
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1676119763475/d04658fa-c526-4a16-9113-d0088c84d85e.jpeg
+tags: computer-vision
+
+---
 
 When it comes to detecting the shape of an object in an image, there are several methods that can be used. In this article, we will compare three methods: **merging and splitting, merging, and splitting**. We will understand when to use each method and what they are used for.
 
