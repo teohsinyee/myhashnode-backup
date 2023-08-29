@@ -1,4 +1,13 @@
-# 11 things to consider before accepting internship offer (USM@CS)
+---
+title: "11 things to consider before accepting internship offer (USM@CS)"
+seoTitle: "internship"
+datePublished: Sun Jan 22 2023 10:43:20 GMT+0000 (Coordinated Universal Time)
+cuid: cld794dbm000909mlf9ea87ut
+slug: internship-offer-usmcs
+cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/HXOllTSwrpM/upload/d8391bb6fba42aff91b46832d0f5556f.jpeg
+tags: internships
+
+---
 
 This article is tailored for students in three different stages of their internship journey:
 
