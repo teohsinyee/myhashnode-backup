@@ -1,4 +1,12 @@
-# Computer Vision: Compare edge segmentation methods
+---
+title: "Computer Vision: Compare edge segmentation methods"
+datePublished: Sat Feb 11 2023 11:04:40 GMT+0000 (Coordinated Universal Time)
+cuid: cldzuoukb000808l045xu4u0p
+slug: edge-segmentation-methods
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1676113351010/095321e1-5df6-427e-9e85-bf3937507532.png
+tags: image-processing, computer-vision
+
+---
 
 When it comes to detecting the shape of an object in an image, there are several methods that can be used. The most commonly used methods are edge thresholding, edge linking, border tracing, and graph searching. In this article, we will compare these methods and understand when to use each one.
 
