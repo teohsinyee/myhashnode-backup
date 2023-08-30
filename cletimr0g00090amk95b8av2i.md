@@ -225,4 +225,62 @@ We have the power to choose how we live our lives, and I'm grateful for the free
 
 ### Month 8 (May 2023)
 
-Writing...
+Academic: ⭐⭐⭐⭐☆  
+Relationship: ⭐⭐☆☆☆  
+Self-care: ⭐⭐⭐⭐☆
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1693389345408/905a509f-d0db-437d-b1b9-54f95e9de94a.png align="center")
+
+This month has been quite a whirlwind with assignments and juggling multiple tasks. Amidst the hustle and bustle, I've made some positive changes in my routine. I've started incorporating low-fat milk and whole wheat bread into my daily diet, a small step toward taking better care of myself.
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1693389460821/aaf5016c-6109-4632-8ce5-950757a8a939.png align="center")
+
+With so much on my plate, it's no surprise that things have felt a bit overwhelming. On top of everything, I've also begun working on my final report for my FYP. There's a touch of worry about how well I'll do, but I'm giving it my all and maintaining my focus.
+
+I even received an invitation to share my experiences from my senior year in a forum setting. However, I decided to decline as I feel these types of discussions can sometimes only scratch the surface. <mark>Right now, my main priority is to excel in what I'm currently engaged in.</mark>
+
+---
+
+### Month 9 (June 2023)
+
+Academic: ⭐⭐⭐⭐☆  
+Relationship: ⭐⭐☆☆☆  
+Self-care: ⭐⭐⭐☆☆
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1693389371572/d80b8fe1-49de-4e06-beb5-e84bd102c2a9.png align="center")
+
+This marks my final month at Hilti, as my six-month contract is coming to an end. Unexpectedly, a mango smashed my windshield, which was quite a challenge. Despite the situation, I handled it on my own by arranging for a mechanic and sending the car to a workshop about 10 kilometers away. This incident taught me a valuable lesson – having financial stability is like having the best security guard. Because I had the money to cover the repair expenses, I felt secure and didn't stress about fixing my car. <mark>Financial independence is key, especially during unexpected situations like health issues.</mark>💰💰 Looking back, this accident might not have been entirely bad – I consider myself lucky to still be safe.
+
+Amid all the challenges, I've reached a big point in my studies this year. <mark>On June 19th, I successfully handed in my FYP Final Report.</mark> Although the report wasn't perfect, I know I put in a lot of effort. **I wish it could have been more complete**, but I'm proud of what I've done. It's a major achievement for my studies. 💪💪
+
+Even though I felt pretty tired because of the car incident and all the schoolwork, I kept my motivation up. I kept pushing myself every day, even if it meant staying up late. <mark>Despite the difficulties, I'm really grateful for my friends who supported me</mark> by bringing food during those late hours. 😍
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1693389419347/a40cd22c-6d4c-4b1c-b45f-b9e088be6216.png align="center")
+
+In the middle of everything, I had the chance to fly to Microsoft KL for a workshop. It was a good break, and it helped me recharge while I was also working hard on my assignments and getting ready for tests. 🔋🔋
+
+---
+
+### Month 10 (July 2023)
+
+Academic: ⭐⭐⭐⭐☆  
+Relationship: ⭐⭐⭐⭐☆  
+Self-care: ⭐⭐☆☆☆
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1693389480898/194e8efa-bf29-4df7-bc22-73bcb2ebbb32.png align="center")
+
+This month was a roller-coaster ride. My FYP presentation was set for July 11, right after my birthday.🤣 I had a bunch of bugs to fix in a short time. It was tough and I felt worn out from the workload. I was rushing to finish my FYP and dealing with tests and assignments too.
+
+<mark>I was really tired and knew I couldn't get everything done perfectly on time.</mark> Since FYP was a big deal, I asked my lecturers for more time for assignments. They understood and agreed. I ended up having only about 3 hours of sleep for days in a row. 🥱🥱🥱 Then, just 3 days before the presentation, I got food poisoning and got stuck in bed. 🤮🤮 But even though I was sick, I kept working in the lab. My friends saw I wasn't well. Two of them offered help with my project. We stayed up late every night. Other friends pitched in too, some even from different places. One friend from KL visited USM for a while and still helped a lot. 🫂🙏🙏
+
+On July 11, I felt confident for the presentation, but it didn't go well because of a tech problem. My laptop's cable didn't connect to the projector. We tried everything, even restarting my laptop, but nothing worked. So, I presented using my supervisor's laptop. It messed up my thoughts, and the presentation wasn't good. 😭😭😭
+
+Usually, I check everything the day before, but this time I couldn't because I was rushing. I learned a big lesson.
+
+I left the presentation room feeling upset. 😭 My friends comforted me and guided me to rest. I couldn't sleep, so I went to computer shops to fix my laptop's problem. But they couldn't fix it. I got an adapter instead, and the next day, I went to the room to check if it worked. It worked!!! 🥳🥳🥳
+
+Even though I felt bad about what happened, I had another chance on July 25 to present to my client. Thankfully, it went well and my supervisor liked it too. I felt a lot better. <mark>Instead of staying sad, I chose to move forward and do better next time.</mark>
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1693389490929/27f00223-63ed-42a3-ae70-6e4c9b6031f2.png align="center")
+
+Finally, I could sleep without worries! Even though I still had unfinished assignments, things felt lighter. My friends wanted to celebrate my birthday on July 12. Some got me cakes, some treated me to meals, and all of them sent me warm wishes. 🎂🎂🎂**Even though my friend group isn't big, their kindness means a lot to me.**
