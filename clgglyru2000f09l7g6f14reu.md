@@ -20,11 +20,11 @@ tags: sermon, christianity
     
 * Another compelling story focused on a team he led. The prevailing culture involved indulging clients with drinking and smoking. **However, he took a stand against this norm, demonstrating that equivalent results could be achieved without compromising personal values.** This choice led to transforming the team and its practices, despite facing criticism for his unconventional approach.
     
-* These stories were deeply rooted in the principles of Romans 12:2.
+* These stories were deeply rooted in Romans 12:2.
     
     > **"Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God's will is—his good, pleasing, and perfect will."**
     
-* Our pastor demonstrated the courage to uphold what is morally right, regardless of differing opinions.
+* Pr. Tim demonstrated the courage to uphold what is morally right, regardless of differing opinions.
     
 * As recent graduates and entry-level employees, we are often recipients of policies. However, the shift to blue-collar roles provides us with greater opportunities to effect positive change. <mark>The focus isn't solely on climbing the corporate ladder but rather on the lasting impact we can have on the lives of others.</mark>
     
