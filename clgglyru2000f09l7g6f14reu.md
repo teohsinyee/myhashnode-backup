@@ -8,6 +8,39 @@ tags: sermon, christianity
 
 ---
 
+### Topic: Excelling in the Workplace; Progressing in the Workplace
+
+* The sermon began with a thought-provoking question: "**Who is the most successful corporate leader**?" Names like Elon Musk and Jack Ma echoed through the audience. However, Pr. Tim unveiled that King Solomon held this title.
+    
+* This revelation was truly eye-opening and inspired me to dig deeper into the wisdom of King Solomon.
+    
+* Pr. Tim, who transitioned from being a blue-collar worker at a multinational corporation to owning an F&B business, and now serving as a pastor, shared captivating stories from his journey.
+    
+* In one story, he recounted his promotion to a blue-collar role. With this promotion, the company granted him a special parking spot. He observed that this parking area was reserved for luxury cars, creating a contrast with his modest vehicle. **Despite suggestions to upgrade his car to match the prestige, he chose authenticity and parked in his regular spot.** This decision showcased his commitment to staying true to himself.
+    
+* Another compelling story focused on a team he led. The prevailing culture involved indulging clients with drinking and smoking. **However, he took a stand against this norm, demonstrating that equivalent results could be achieved without compromising personal values.** This choice led to transforming the team and its practices, despite facing criticism for his unconventional approach.
+    
+* These stories were deeply rooted in the principles of Romans 12:2. `"Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God's will is—his good, pleasing, and perfect will."`
+    
+* Our pastor demonstrated the courage to uphold what is morally right, regardless of differing opinions.
+    
+* As recent graduates and entry-level employees, we are often recipients of policies. However, the shift to blue-collar roles provides us with greater opportunities to effect positive change. <mark>The focus isn't solely on climbing the corporate ladder but rather on the lasting impact we can have on the lives of others.</mark>
+    
+* The audience was encouraged to script their own stories, ones that resist conformity to worldly standards. These stories were divided into **four essential chapters**:
+    
+    1. **Godliness:** How do we stand up for righteousness?
+        
+    2. **Grace:** How do we display love and compassion towards others?
+        
+    3. **Generosity:** How do we extend generosity to those around us?
+        
+    4. **Gospel:** How do we share the message of the Gospel?
+        
+* Reflecting on his entrepreneurial journey, the pastor highlighted the vast contrast between the blue-collar and entrepreneurial worlds. He shared his experience of turning enemies into friends, a strategy that harmonized with his core values and facilitated smoother progress.
+    
+* As we journey in faith and professional growth, may our stories be ones of courage, authenticity, and the unwavering commitment to stand for what is right!
+    
+
 ### Topic: How can I gain from pain?
 
 * The question of why there is so much pain and suffering in the world is a complex one that has puzzled people for centuries. The Bible teaches that pain and suffering entered the world as a result of human sin and rebellion against God, and that we all have a tendency towards selfishness and self-gratification.
