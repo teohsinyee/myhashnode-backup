@@ -131,7 +131,7 @@ tags: sermon, christianity
 * Finally, as Christians <mark>we should strive to care for others in the same way that Jesus cares for us</mark>. We should be motivated by a love for God and a desire to share His love and truth with others. This is our greatest responsibility and privilege as followers of Christ.
     
 
-Last updated: 14-Apr-2023
+Last updated: 30-Aug-2023
 
 ---
 
