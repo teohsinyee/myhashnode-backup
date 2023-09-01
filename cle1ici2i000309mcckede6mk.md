@@ -4,7 +4,7 @@ datePublished: Sun Feb 12 2023 14:54:41 GMT+0000 (Coordinated Universal Time)
 cuid: cle1ici2i000309mcckede6mk
 slug: computer-vision-feature-extraction
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1676213635063/f99218f6-fcee-4a38-8480-f4f9d13bd463.png
-tags: computer-vision
+tags: computer-vision, technical
 
 ---
 
