@@ -4,7 +4,7 @@ datePublished: Sun Mar 12 2023 13:31:33 GMT+0000 (Coordinated Universal Time)
 cuid: clf5fpgfp000d09mo22yh857b
 slug: internship-first-day
 cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/rMILC1PIwM0/upload/2144ab0a2822db3ce61069b07228811e.jpeg
-tags: internship
+tags: internship, non-technical
 
 ---
 
