@@ -1,4 +1,12 @@
-# From Regrets to Growth in my 23
+---
+title: "From Regrets to Growth in my 23"
+datePublished: Tue Feb 14 2023 15:29:24 GMT+0000 (Coordinated Universal Time)
+cuid: cle4eguwh000b09l99qht9tmv
+slug: from-regrets-to-growth-in-my-23
+cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/-Cmz06-0btw/upload/81d233df8452a515d9a6905e311b27d7.jpeg
+tags: personal-growth, non-technical
+
+---
 
 Do you ever find yourself reflecting on your past and feeling a sense of regret? We've all been there. But what if I told you that your regrets could be a valuable tool for personal growth? That's what I've come to realize as I reflect on my own life.
 
