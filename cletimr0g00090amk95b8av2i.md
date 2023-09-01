@@ -3,7 +3,7 @@ title: "My Final Year Study journey (Month series)"
 datePublished: Sat Mar 04 2023 05:20:12 GMT+0000 (Coordinated Universal Time)
 cuid: cletimr0g00090amk95b8av2i
 slug: final-year-study-journey
-cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/-UUGr3txNuc/upload/87f0f2b17640a9ce435c3861c77952c4.jpeg
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1693579985791/83f35b07-34a3-4ed3-b082-8eb180c891d1.png
 tags: experience, non-technical
 
 ---
