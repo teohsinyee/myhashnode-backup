@@ -4,7 +4,7 @@ datePublished: Wed Apr 26 2023 09:56:35 GMT+0000 (Coordinated Universal Time)
 cuid: clgxiuc5o000009l61eii8luz
 slug: friendship
 cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/eAkjzXCU0p0/upload/cbd16a01145c6c6055b6a35defa91f52.jpeg
-tags: friendship
+tags: friendship, non-technical
 
 ---
 
