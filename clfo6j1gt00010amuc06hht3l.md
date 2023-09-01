@@ -4,7 +4,7 @@ datePublished: Sat Mar 25 2023 16:22:15 GMT+0000 (Coordinated Universal Time)
 cuid: clfo6j1gt00010amuc06hht3l
 slug: beyond-the-textbook
 cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/GZa4QFmv0Zg/upload/cd4841f43351c1402cb5320ec50f4c3c.jpeg
-tags: education, myths, life-advice
+tags: education, non-technical, myths, life-advice
 
 ---
 
