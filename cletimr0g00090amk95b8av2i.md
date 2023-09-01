@@ -4,7 +4,7 @@ datePublished: Sat Mar 04 2023 05:20:12 GMT+0000 (Coordinated Universal Time)
 cuid: cletimr0g00090amk95b8av2i
 slug: final-year-study-journey
 cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/-UUGr3txNuc/upload/87f0f2b17640a9ce435c3861c77952c4.jpeg
-tags: experience
+tags: experience, non-technical
 
 ---
 
