@@ -1,4 +1,12 @@
-# Revision Techniques That Are Proven to Work!
+---
+title: "Revision Techniques That Are Proven to Work!"
+datePublished: Tue Feb 14 2023 19:16:06 GMT+0000 (Coordinated Universal Time)
+cuid: cle4mkegi00040amf4ln934tw
+slug: revision-techniques
+cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/hgFY1mZY-Y0/upload/0af02d175e6efef37bfdd92ccae54ae7.jpeg
+tags: computer-science, student, non-technical
+
+---
 
 During my fourth year at university, I finally discovered the study techniques that work best for me. 🥳🥳
 
