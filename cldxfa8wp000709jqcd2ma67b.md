@@ -4,7 +4,7 @@ datePublished: Thu Feb 09 2023 18:17:52 GMT+0000 (Coordinated Universal Time)
 cuid: cldxfa8wp000709jqcd2ma67b
 slug: computer-vision-compare-thresholding-methods
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1675966597189/9e97cf18-9328-455d-a83e-59557624c6a6.png
-tags: computer-vision
+tags: computer-vision, technical
 
 ---
 
