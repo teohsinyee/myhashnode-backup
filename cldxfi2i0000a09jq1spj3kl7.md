@@ -4,7 +4,7 @@ datePublished: Thu Feb 09 2023 18:23:57 GMT+0000 (Coordinated Universal Time)
 cuid: cldxfi2i0000a09jq1spj3kl7
 slug: computer-vision-practice-case-studies
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1675931300347/22ee4d4a-e1ed-44bd-a6f6-9e9c482ea047.jpeg
-tags: image-processing, computer-vision, case-study
+tags: image-processing, computer-vision, technical, case-study
 
 ---
 
