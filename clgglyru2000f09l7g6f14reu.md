@@ -4,7 +4,7 @@ datePublished: Fri Apr 14 2023 13:51:56 GMT+0000 (Coordinated Universal Time)
 cuid: clgglyru2000f09l7g6f14reu
 slug: sermon-notes
 cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/eahRGzdtIVc/upload/5f7ac449b2f09bc882d94a3afd60aa82.jpeg
-tags: sermon, christianity
+tags: non-technical, sermon, christianity
 
 ---
 
