@@ -4,7 +4,7 @@ datePublished: Sat Feb 11 2023 11:04:40 GMT+0000 (Coordinated Universal Time)
 cuid: cldzuoukb000808l045xu4u0p
 slug: edge-segmentation-methods
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1676113351010/095321e1-5df6-427e-9e85-bf3937507532.png
-tags: image-processing, computer-vision
+tags: image-processing, computer-vision, technical
 
 ---
 
