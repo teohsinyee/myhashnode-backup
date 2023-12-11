@@ -3,12 +3,12 @@ title: "My Final Year Study journey (Month series)"
 datePublished: Sat Mar 04 2023 05:20:12 GMT+0000 (Coordinated Universal Time)
 cuid: cletimr0g00090amk95b8av2i
 slug: final-year-study-journey
-cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1693580406240/83f6e161-e29b-4314-9df3-9b8d3613cea0.png
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1702274920340/658f261f-f41a-4e31-a6f1-7bf5730abbd0.png
 tags: experience, non-technical
 
 ---
 
-Welcome to my sharing series where I will be documenting my **final year of study at School of Computer Sciences of Universiti Sains Malaysia**, which has been the toughest period of my life so far.
+Welcome to my sharing series where I will be documenting my **final year study at School of Computer Sciences of Universiti Sains Malaysia**, which has been one of the most challenging period of my uni life so far.
 
 Most people only see the bright side of others and don't realize the struggles that they may be going through. I want to change that by sharing my journey with you.
 
