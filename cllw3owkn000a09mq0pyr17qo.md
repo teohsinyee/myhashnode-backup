@@ -3,7 +3,7 @@ title: "Community Work (Ongoing)"
 datePublished: Tue Aug 29 2023 09:23:13 GMT+0000 (Coordinated Universal Time)
 cuid: cllw3owkn000a09mq0pyr17qo
 slug: community-work
-cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1693581330336/22b130ad-0f4f-490d-b3d6-a906dfd39299.png
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1702275036149/c143d0eb-f8ab-4810-9310-6175c0f0deca.png
 tags: community, non-technical, volunteer
 
 ---
