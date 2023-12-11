@@ -4,7 +4,7 @@ seoTitle: "How to Enjoy Doing Something You Hate"
 datePublished: Mon Nov 27 2023 14:39:42 GMT+0000 (Coordinated Universal Time)
 cuid: clph0mkxh001609la2l8ad7n8
 slug: how-to-enjoy-doing-something-you-hate
-cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1701095086807/35c2af91-b124-4f49-9b4a-fdaa845d0e7c.png
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1702275000236/36af4a9d-7e5d-4e13-a16f-0df5146a0585.png
 tags: productivity, tricks, procrastination
 
 ---
