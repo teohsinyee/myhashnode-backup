@@ -4,7 +4,7 @@ datePublished: Sat Apr 13 2024 03:00:31 GMT+0000 (Coordinated Universal Time)
 cuid: cluxieyza000508l5hfyoei3q
 slug: how-loss-shaped-my-outlook-on-life
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1712976025623/3d2ac502-0b68-4bbb-b734-cedc7763e12a.jpeg
-tags: life, death, loss
+tags: life, non-technical, death, loss
 
 ---
 
